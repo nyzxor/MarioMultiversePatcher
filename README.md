@@ -1,2 +1,2 @@
 # MarioMultiversePatcher
-Kids and people idiot fuck you
+this is not a patch.
